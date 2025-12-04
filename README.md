@@ -4,7 +4,7 @@
 </p>
 <br>
 <p align="center">
-<a href="https://thesatanictemple.com/?srsltid=AfmBOoqlQtWBcLEZ_8ctyFAB7nhAB7dVyHBo_swzwnfjxjhulKVkATl-">𝘀</a>𝖺𝗍𝖺𝗇𝗂𝗌𝗍ㅤㅤ  <a href="https://rentry.co/eng-dni">𝗱</a>𝗇𝗂ㅤㅤ  <a href="https://rentry.co/eng-byi">𝗯</a>𝗒𝗂
+<a href="https://thesatanictemple.com/?srsltid=AfmBOoqlQtWBcLEZ_8ctyFAB7nhAB7dVyHBo_swzwnfjxjhulKVkATl-">𝘀</a>𝖺𝗍𝖺𝗇𝗂𝗌𝗍　　  <a href="https://rentry.co/eng-dni">𝗱</a>𝗇𝗂　　  <a href="https://rentry.co/eng-byi">𝗯</a>𝗒𝗂
 <br><br>
 <img width="500" alt="text" src="https://github.com/user-attachments/assets/69f395a2-8958-41f5-bdf3-af36decbb810" /> </br>
 <img width="100" alt="text" src="https://github.com/user-attachments/assets/b5b5827e-7c42-4959-b57f-eb4240ed44cf" /> </br>
